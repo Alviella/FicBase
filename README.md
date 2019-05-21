@@ -1,0 +1,1 @@
+"A platform where people can develop their own stories without being distracted by trifles. Characters, phenomena, events - all this and even more can be described, systematized and maintain a history of changes to always keep everything under control." 
